@@ -9,3 +9,6 @@
  📫 How to reach me: https://github.com/Anvi1711/Anvi1711
  😄 Pronouns: In bio
  ⚡ Fun fact: I like cranberry juice
+
+
+![My GIF](3-gato.gif)
