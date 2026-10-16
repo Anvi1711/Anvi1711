@@ -7,7 +7,7 @@
  
  💬 Ask me about how i like cranberry juice?
  
- 📫 How to reach me: https://github.com/Anvi1711/Anvi1711
+ 📫 How to reach me: https://www.instagram.com/1nonlyanvi/
  
  😄 Pronouns: In bio
  
